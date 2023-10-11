@@ -2,7 +2,7 @@
 <p align="center">  
   <a href="https://youtu.be/WcA7GZuaN0A">
     <img alt="Guru" height="300" src="https://telegra.ph/file/e509be2d469ecbf2a33e5.jpg">
-    <h1 align="center">KLEVER BOT </h1>
+    <h1 align="center">• 🄱🄾🅃~🄺🄻🄴🅅🄴🅁 ❥! </h1>
   </a>
 </p>
 <p align="center">
